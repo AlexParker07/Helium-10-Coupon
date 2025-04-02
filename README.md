@@ -128,3 +128,5 @@ Don’t sleep on these **Helium 10 coupon codes**! Use **'BLOGE6M20'** for **20%
 
 🔗 **[Sign up now](https://aff.ninja/go/helium10)**—these deals could vanish any time! 🔥
 
+[![Sign up now](https://res.cloudinary.com/dav29ivcg/image/upload/v1743576384/Sign_up_now_Button_zgwki6.png)](https://aff.ninja/go/helium10)
+
