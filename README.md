@@ -28,11 +28,17 @@ Ready to boost your Amazon business? Get **20% off for 6 months** with the Heliu
 
 ## 🔥 Steps to Redeem Your Helium 10 Coupon
 1️⃣ **[Go to the Helium 10 pricing page](https://aff.ninja/go/helium10)**.
+
 2️⃣ Choose your plan: **Starter, Platinum, or Diamond**.
+
 3️⃣ Select **monthly billing**.
+
 4️⃣ Enter **'[BLOGE6M20](https://aff.ninja/go/helium10)'** for 20% off **(first 6 months)** or **'[BLOGE10](https://aff.ninja/go/helium10)'** for 10% off **(every month)**.
+
 5️⃣ Click **"Apply"** and see your new price!
+
 6️⃣ Complete checkout and **start optimizing your Amazon business!** 🚀
+
 
 💡 Want to test it first? **Sign up for a free trial** before committing!
 
