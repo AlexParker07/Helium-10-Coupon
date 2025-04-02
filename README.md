@@ -1,15 +1,15 @@
 # 🚀 Unlock Up to 20% Off Helium 10 with These Exclusive Codes
 
 
-Ready to boost your Amazon business? Get **20% off for 6 months** with the Helium 10 coupon code **'BLOGE6M20'** or enjoy **10% off every month** with **'BLOGE10'**. Helium 10 is the ultimate toolkit for Amazon sellers, and with these exclusive discounts, you can access its powerful features at a fraction of the cost. Plus, kick things off with a **free trial**—no risk, all reward! 🎉
+Ready to boost your Amazon business? Get **20% off for 6 months** with the Helium 10 coupon code **'[BLOGE6M20](https://aff.ninja/go/helium10)'** or enjoy **10% off every month** with **'[BLOGE10](https://aff.ninja/go/helium10)'**. Helium 10 is the ultimate toolkit for Amazon sellers, and with these exclusive discounts, you can access its powerful features at a fraction of the cost. Plus, kick things off with a **free trial**—no risk, all reward! 🎉
 
 [![Claim Coupon Code](https://res.cloudinary.com/dav29ivcg/image/upload/v1743573426/Claim_Coupon_Code_Button_wnzio2.png)](https://aff.ninja/go/helium10)
 
 ---
 
 ## 🎯 Helium 10 Discount Highlights
-✅ **20% off** for 6 months with code **'BLOGE6M20'**—perfect for testing the waters.
-✅ **10% off** every month with **'BLOGE10'**—ideal for long-term savings.
+✅ **20% off** for 6 months with code **'[BLOGE6M20](https://aff.ninja/go/helium10)'**—perfect for testing the waters.
+✅ **10% off** every month with **'[BLOGE10](https://aff.ninja/go/helium10)'**—ideal for long-term savings.
 ✅ Available on **Starter, Platinum, and Diamond** plans (monthly billing).
 
 ![Helium 10 Pricing](https://raw.githubusercontent.com/realshadowx/BigSpy/main/image.png)
@@ -30,7 +30,7 @@ Ready to boost your Amazon business? Get **20% off for 6 months** with the Heliu
 1️⃣ **[Go to the Helium 10 pricing page](https://aff.ninja/go/helium10)**.
 2️⃣ Choose your plan: **Starter, Platinum, or Diamond**.
 3️⃣ Select **monthly billing**.
-4️⃣ Enter **'BLOGE6M20'** for 20% off **(first 6 months)** or **'BLOGE10'** for 10% off **(every month)**.
+4️⃣ Enter **'[BLOGE6M20](https://aff.ninja/go/helium10)'** for 20% off **(first 6 months)** or **'[BLOGE10](https://aff.ninja/go/helium10)'** for 10% off **(every month)**.
 5️⃣ Click **"Apply"** and see your new price!
 6️⃣ Complete checkout and **start optimizing your Amazon business!** 🚀
 
@@ -39,7 +39,7 @@ Ready to boost your Amazon business? Get **20% off for 6 months** with the Heliu
 ---
 
 ## ⏳ How Long Are These Helium 10 Deals Available?
-The **'BLOGE6M20'** and **'BLOGE10'** codes are **live now**, but they won’t stick around forever. There’s no fixed end date, so **grab your discount before it’s gone!**
+The **'[BLOGE6M20](https://aff.ninja/go/helium10)'** and **'[BLOGE10](https://aff.ninja/go/helium10)'** codes are **live now**, but they won’t stick around forever. There’s no fixed end date, so **grab your discount before it’s gone!**
 
 ---
 
