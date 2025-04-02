@@ -15,8 +15,6 @@ Ready to boost your Amazon business? Get **20% off for 6 months** with the Heliu
 ✅ Available on **Starter, Platinum, and Diamond** plans (monthly billing).
 
 
-[![Helium 10 Pricing](https://res.cloudinary.com/dav29ivcg/image/upload/v1743575194/Helium-10-Plans_Pricing_telj86.png)](https://aff.ninja/go/helium10)
-
 ## 💰 Breakdown of Helium 10 Savings by Plan
 
 | Plan     | Original Price | With 'BLOGE6M20' (First 6 Months) | With 'BLOGE10' (Every Month) |
