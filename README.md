@@ -1,7 +1,5 @@
 # 🚀 Unlock Up to 20% Off Helium 10 with These Exclusive Codes
 
-[![Claim Coupon Code](https://res.cloudinary.com/dav29ivcg/image/upload/v1743572580/Claim_Coupon_Code_Button_nxiz76.jpg)](https://aff.ninja/go/helium10)
-
 
 Ready to boost your Amazon business? Get **20% off for 6 months** with the Helium 10 coupon code **'BLOGE6M20'** or enjoy **10% off every month** with **'BLOGE10'**. Helium 10 is the ultimate toolkit for Amazon sellers, and with these exclusive discounts, you can access its powerful features at a fraction of the cost. Plus, kick things off with a **free trial**—no risk, all reward! 🎉
 
