@@ -47,6 +47,8 @@ Ready to boost your Amazon business? Get **20% off for 6 months** with the Heliu
 
 💡 Want to test it first? **Sign up for a free trial** before committing!
 
+[![Sign up for a free trial](https://res.cloudinary.com/dav29ivcg/image/upload/v1743576246/Sign_up_for_a_free_trial_Button_lslecm.png)](https://aff.ninja/go/helium10)
+
 ---
 
 ## ⏳ How Long Are These Helium 10 Deals Available?
