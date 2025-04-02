@@ -12,7 +12,7 @@ Ready to boost your Amazon business? Get **20% off for 6 months** with the Heliu
 ✅ **10% off** every month with **'[BLOGE10](https://aff.ninja/go/helium10)'**—ideal for long-term savings.
 ✅ Available on **Starter, Platinum, and Diamond** plans (monthly billing).
 
-![Helium 10 Pricing](https://raw.githubusercontent.com/realshadowx/BigSpy/main/image.png)
+[![Helium 10 Pricing](https://res.cloudinary.com/dav29ivcg/image/upload/v1743575194/Helium-10-Plans_Pricing_telj86.png)](https://aff.ninja/go/helium10)
 
 ## 💰 Breakdown of Helium 10 Savings by Plan
 
@@ -55,10 +55,6 @@ Helium 10 is an all-in-one platform built to help Amazon sellers **succeed**. He
 | 📦 **Inventory Management** | Keep stock in check and avoid costly shortages. |
 | 📊 **PPC Management** | Maximize ad ROI with **Adtomic’s automation**. |
 | 📈 **Analytics** | Monitor profits and trends with **Profits and Insights Dashboard**. |
-
-📺 **Watch the official Helium 10 overview:**
-
-[![Helium 10 YouTube Video](https://img.youtube.com/vi/VIDEO_ID_HERE/0.jpg)](https://www.youtube.com/watch?v=VIDEO_ID_HERE)
 
 From startups to big players, Helium 10 delivers the tools to **dominate Amazon!**
 
